@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bee-Haa-hae-ameohtse
+- 👋 Hi, I’m @Bee-Haa-Hae-Ameohtse
 - 👀 I’m interested in more about coding basics and the community associated.
 - 🌱 I’m currently learning baby steps...
 - 💞️ I’m looking to collaborate on Community resources
